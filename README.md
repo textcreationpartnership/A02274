@@ -36,9 +36,13 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
+
+1. Y Diarebion Camberaëc.
 AByli pop peth ae boddlonoAbyl i pawp i gydraddAchos bychan i daw blinderAchos eb achos o honawAchwyDewys or ddwy vachddu hwch*Dibech vywyd, gwyn ei vydDygistudd deurudd dagrauDigon o grwth a' thelynDEHeng ywr byd i bawpEddunet herwr, hirnosEf a ddaw haf ir▪ ci cochEf a ddaw rhew y lyffantEf aeth hyFAwd pawp yn ei dalFol poptlawtFordd bell i wr o Benilyn▪Fo rac dicter, ac na ffo rac drwc argwyddFiGAdael ynos wethaf yn olafGair gwr o castellGair gwraic val gwynt yn vawadauGelyni ddyn ei ddaGellwnHAel Owain o bwrs y wlatHap Ddew ddewrynHardd pop new yddHanner y wledd, hoffedd ywHawdd eiriol, ar KAdarnach yw'r edau yn gyfrodeddKad maly, cad i werthKauas da; ni chauas drwcKaledach glew, no maen.LEilailymeit gayafLledled rydau: waeth waeth ddeddfenLladd y gwadn val y bo'r troetLlawen meichiad pMap eb ddysc, tuy a lyscMagy chwileiyn ymmonwesMae arhos ir byssen i vot ar y barth.Mae gwehilion irNAcholl: dy henford er dy ffordd newyddNa ddeffe 〈◊◊◊〉 cyscyNa 〈◊◊◊◊〉Na vid dryg wraic, dh gyfrin••NOBydd cell i ci, mynych yd a iddiO byd o nep yn ol, bid y bawafO bop trwm, trymaf henaintO chaiff irPAn dywysor dall ddall arall, y ddau a ddygwydd ir pwllPan dywyso ir hyn deric i braidd ni bydd ir yRAc bod y sul e• siglawRait i segut beth yw wneuthurRait yw cropian kyn kerddetRait wrth ammwyll pwySIeffre piaur troet, Sieffre piau r vwyallSomi Dew a manach marwSonio am Awst wilieu NatalicSicraf yTAbler i lyuauTauern i chwedleuTauot aur ym-pen dedwyddTavlath vnllaw, cais ath ddwyllawTairg waith VMpryt ir iar yn ir yscuporUmpryd y ceilioc ar y twr gwenithUnllaw ar dan, canllaw ar wlanUnllawioc WAeth waeth val map gafrWaeth-waeth vaensaer,
 
 well well brensaerWell well pop ffynnedicWythnos y llYPendro wibwrnY budd a ludd y lluddetYchenait gwraich yn ol hi ywd.Ychenait at ddoethYchydic laeth, 
+1. Trioedd ynys Brytain
+
 **Types of content**
 
   * There are 134 **verse** lines!
